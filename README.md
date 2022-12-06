@@ -10,7 +10,7 @@
  another time and create something together with much more time on our hands. Who know's we may create the greatest game to ever come out. In the 
  end, we did not see through our orginal vision but we still came out on top with a game. We did end with an outcome we are both happy to submit.
  
- >>>>>>>>>>>> DEMONSTRATION VIDEO [https://youtu.be/iyRVj1cBEI8] <<<<<<<<<<<<<<
+ DEMONSTRATION VIDEO [https://youtu.be/iyRVj1cBEI8] P.S. YouTube destroys the video quailty for some reason, if hard to view or see animation. I'd be more then happy to email orginal video file to whoever grades this.
  
  
  [CREDITS]
